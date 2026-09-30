@@ -14,9 +14,7 @@ Een andere zeer frequente vraag was wat belangrijk was voor het examen. Vanuit m
 
 Verder wil ik jullie graag herinneren aan mijn kat. Herinner elkaar voor het examen ook aan de kat. Op die manier zal je de Jacobiaan op het examen niet vergeten :)) . 
 
-Dit was het dan. Mocht je verder nog wat studiemotivatie zoeken, ik zal in de blok ook posten op mijn instagram-pagina IngeniumBlog, maar zit alsjeblieft nu niet de hele tijd instagram te checken :)).  
-
-Bij deze wens ik jullie veel succes en volharding in de blok en tijdens de examens.
+Dit was het dan. Bij deze wens ik jullie veel succes en volharding in de blok en tijdens de examens.
 
 <img width="276" height="304" alt="afbeelding" src="https://github.com/user-attachments/assets/ac0a7c8b-35ae-4467-9c07-08f4d7b0e564" />
 
